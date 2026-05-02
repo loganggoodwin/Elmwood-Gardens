@@ -1,0 +1,57 @@
+# Elmwood Gardens Lyrics
+
+## Elmwood Gardens
+
+[Verse 1]
+In Manchester, New Hampshire, where the old streets knew our names,
+Elmwood Gardens raised us through the sunshine and the rain.
+From the seventies to the nineties, we were young and running free,
+With every family, every doorway, building up our memories.
+
+[Verse 2]
+Some had little, some had less, but somehow we got by,
+With mothers calling from the windows and kids racing through the night.
+We learned about the world there, both the hard way and the true,
+But Elmwood had a heartbeat in everything we knew.
+
+[Chorus]
+Down in Elmwood Gardens, we were more than just a place,
+We were families, we were neighbors, every story had a face.
+And when the world looked past us, like we didn’t have a name,
+Pat Begin watched over us and loved us just the same.
+
+[Verse 3]
+There were laughter, tears, and birthdays, there were struggles no one saw,
+There were people doing their best and standing proud through it all.
+Every child who grew up there carried something deep inside,
+A little bit of Elmwood strength, a little bit of Elmwood pride.
+
+[Verse 4]
+Pat was there with open eyes; she saw the kids we were,
+Not just trouble, not just numbers, but the future we deserved.
+She gave her time, she gave her heart, she stood where others turned away,
+And I believe we still remember her kindness to this day.
+
+[Chorus]
+Down in Elmwood Gardens, we were more than just a place,
+We were families, we were neighbors, every story had a face.
+And when the world looked past us, like we didn’t have a name,
+Pat Begin watched over us and loved us just the same.
+
+[Bridge]
+Now the years have kept on moving, but the memories still remain,
+The echoes of those children still come running through the rain.
+Some are still here, some moved on, and some watch from above,
+But Elmwood Gardens holds us all in memory and love.
+
+[Final Chorus]
+Down in Elmwood Gardens, from the old days to today,
+We remember all the families who helped shape us on the way.
+And when the world looked past us, like we didn’t have a name,
+Pat Begin watched over us, and we’ll honor her the same.
+
+[Outro]
+So here’s to Elmwood Gardens, every daughter, every son,
+Every family that grew up there, every battle lost and won.
+From the seventies to the nineties, may the memories never fade,
+Elmwood Gardens lives forever in the people that it made.
