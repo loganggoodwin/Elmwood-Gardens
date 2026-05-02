@@ -50,18 +50,6 @@ elmwood_gardens_github_package/
 
 ---
 
-## How to Upload to GitHub
-
-1. Create a new repository on GitHub.
-2. Name it something like:
-   - `elmwood-gardens-tribute`
-   - `elmwood-gardens-song`
-   - `elmwood-gardens-memory-project`
-3. Upload all files from this folder into your repository.
-4. Make sure `README.md` is included in the root of the repo.
-5. Commit the files.
-
----
 
 ## Suggested Repository Topics / Tags
 
